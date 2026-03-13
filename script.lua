@@ -1,6 +1,6 @@
-Bienvenido amig@
-aqui te dejo link de mi grupo por si te interesa unirte y formar parte de este grupo
-https://discord.gg/rweTuTuanC
+-- Bienvenido amig@
+-- aqui te dejo link de mi grupo por si te interesa unirte y formar parte de este grupo
+-- https://discord.gg/rweTuTuanC
 
 
 
